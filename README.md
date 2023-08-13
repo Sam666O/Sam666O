@@ -1,0 +1,3 @@
+- 👋 Hi, I’m me Sam
+- 🌱 I’m currently learning programing
+- 💞️ I’m looking to collaborate on job
